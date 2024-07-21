@@ -1,2 +1,1 @@
-# tntjthanjavur
-https://mohammadibbu.github.io/tntjthanjavur/
+https://tntjthanjaisouth.github.io/tntjthanjavur/
